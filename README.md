@@ -18,5 +18,5 @@ Sou um entusiasta da tecnologia, com formação em Telemática e atualmente curs
 
 ## 📫 Contato
 📧 Email: sousaantoniza@gmail.com
-🌐 [LinkedIn](www.linkedin.com/in/antoniza-morais)  
+🌐 [LinkedIn](https://www.linkedin.com/in/antoniza-morais/)  
 📸 [Instagram](https://www.instagram.com/antoniza_morais/)
